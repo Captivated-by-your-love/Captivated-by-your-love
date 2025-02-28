@@ -2,7 +2,7 @@
 <p>
 
 <p align="center">$\color{#6d7233}{\textsf{ Picture by @theleverethiding on tumblr }}$ 
-<p align="center"><img src="https://file.garden/Z1RDrf5S-wyca2lu/image_2025-02-25_150655449.png" width="800">
+<p align="center"><img src="https://file.garden/Z1RDrf5S-wyca2lu/image_2025-02-25_150655449.png" width="600">
 
 <p align="center">$\color{#6d7233}{\textsf{ Interests since they're not in any of my links }}$
 
