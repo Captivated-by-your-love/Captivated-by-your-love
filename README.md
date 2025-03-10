@@ -2,7 +2,7 @@
 
 <p align="center"><img src="https://64.media.tumblr.com/d2e4449e69ae05e6b2804ebef1fc99ef/fe87e37f555e3994-e9/s2048x3072/3ec8de75d3da83aced9b25f4fa6693b0dacfc287.pnj" width="1000000">
 <p align="center">$\color{#e595ab}{\textsf{ -- Red Wine Supernova. }}$ 
-<p align="center"><img src="https://github.com/user-attachments/assets/17e8b74b-e7e4-4933-99e8-113e4bafefa9" width="900">
+<p align="center"><img src="https://github.com/user-attachments/assets/d6ffdaf0-159d-47c6-b320-248fc7b65b72" width="900">
 <p align="center"><img src="https://github.com/user-attachments/assets/cb025d48-26bd-4d6b-9863-f72b5f04c778" width="600">
 
 <p align="center">$\color{#e595ab}{\textsf{ Gonna rmk my interest list soon but heres my main interests so far }}$
